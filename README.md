@@ -2,8 +2,6 @@
 
 - 💬 Ask me about everything
 - 📫 How to reach me: [Facebook]
-//- ⚡ Fun fact: I slay... effortlessly!
-
 
 ## Spotify Playing 🎧
 
